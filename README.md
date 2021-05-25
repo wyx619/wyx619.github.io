@@ -4,7 +4,7 @@
 
 
 
-![scu](https://wei.ltd.com/uploadfile/epower/image/0/15/455/2019-08/15668104232372.jpg)
+![scu](http://www.scu.edu.cn/__local/4/46/EE/B4D3BDFE7F44910C9A7B1125B5C_65693715_38CD.png)
 
 
 ![Taio 官网](https://pic1.zhimg.com/80/v2-02bc313654944094e7c81608fb250c5a_r.jpg)
