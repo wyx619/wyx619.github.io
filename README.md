@@ -1,6 +1,6 @@
 # ***关于***
 
-# ***Made By*** [王宇轩](https://www.zhihu.com/people/wyx626 "王宇轩")
+# ***Made By Wyx***
 
 
 
